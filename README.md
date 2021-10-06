@@ -1,1 +1,13 @@
-# ListasDeExerciciciosProgramacaoI
+# Listas De Exercicicios Programacao I
+
+*
+*
+*
+*
+*
+*
+*
+*
+*
+*
+
